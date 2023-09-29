@@ -1,1 +1,1 @@
-# Kinda Bad Software ¯\\_(ツ)_/¯
+# Kinda Bad Software ツ
